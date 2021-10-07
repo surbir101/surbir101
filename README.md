@@ -1,1 +1,1 @@
-On the road to becoming a Great Software Developer while enjoying every step..
+Join me on the road to becoming a Great Software Developer..
